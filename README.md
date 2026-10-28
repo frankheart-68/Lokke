@@ -229,4 +229,4 @@ Lokke is offered as the **full free version** with all features and updates incl
 Don’t miss out on an innovative browsing experience—**download Lokke for FREE** today and take control of your online privacy!
 
 ---
-**Last updated:** 2026-10-28 01:07:08 UTC
+**Last updated:** 2026-10-28 08:14:58 UTC
